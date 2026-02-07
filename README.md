@@ -1,1 +1,1 @@
-# play-stre  adarsh is millionare .
+# play-store  adarsh is millionare .
